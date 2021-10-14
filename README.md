@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Slowly
+- 👀 I’m interested in Coding and Gaming
+- 📫 You can reach me on discord in my discord Server: https://dsc.gg/midnight!
